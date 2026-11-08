@@ -1,2 +1,1 @@
 - 👋 Hi, I’m @Ashhead-KYUL
-- The Kid LAROI, MINO, ASH ISLAND, KYUL
